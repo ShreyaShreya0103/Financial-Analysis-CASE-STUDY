@@ -1,0 +1,1 @@
+Conducted financial analysis for companies like Coca-Cola, Apple, Google, and Starbucks, reviewing 10-K reports, analyzing balance sheets, cash flow statements, and more as a Credit Analyst, Portfolio Analyst, and CFO.
